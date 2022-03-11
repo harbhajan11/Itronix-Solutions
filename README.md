@@ -14,7 +14,10 @@ Why you should Learn Python Programming with Itronix Solutions?
 Why Itronix Solutions is The Best Institute for Online Python Training in Jalandhar?
 Why Enroll in Our Python Training Course in Jalandhar?
 Career after Python Programming Training Course?
-Contact Itronix Solutions to Enroll for <a href="https://itronixsolution.com/python-training-jalandhar/">Best Python Course in Jalandhar</a> and Get FREE Python Certification from IBM. In Their Jalandhar Branch, Python Course designs according to current IT requirements.<p/>
+Contact Itronix Solutions to Enroll for <a href="https://itronixsolution.com/python-training-jalandhar/">Best Python Course in Jalandhar</a> and Get FREE Python Certification from IBM. In Their Jalandhar Branch, Python Course designs according to current IT requirements.
+        <a href="https://indiansuccessstories.com/">Indian Success Stories</a>
+        <a href="http://erkaranarora.com/">Er.Karan Arora - Founder and CEO - Itronix Solutions</a>
+      <p/>
 <address> SCO-28, First Floor, Chotti Baradari, Garha Road, Jalandhar
 Phone No: +91 99140 77736, +91 94173 12121 </address>
       
